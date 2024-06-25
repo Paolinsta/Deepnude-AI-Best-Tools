@@ -1,7 +1,7 @@
 # Deepnude-AI-Best-Tools
 The best AI tools for nudify, undress, cum on face, futanari and many other NSFW effects
 
-* <b>[Dreampaint.net - Nudify, Bukkake, Futanari, Tattoo and many more NSFW effects with AI (recommended)](https://www.dreampaint.net/?utm_source=github&utm_medium=paolinsta&utm_campaign=AI-best-tools)</b>
+* <b>[Dreampaint.net - Deepnude, Undress, Bukkake, Futanari, Tattoo and many more NSFW effects with AI (recommended)](https://www.dreampaint.net/?utm_source=github&utm_medium=paolinsta&utm_campaign=AI-best-tools)</b>
 
 * [SukebeZone](https://www.sukebezone.com/)
 * [Deepswap](https://www.deepswap.ai/)
